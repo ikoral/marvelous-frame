@@ -1,2 +1,2 @@
-# marvelousframe-week2-ilhan-
+# marvelousframe-week2-ilhan
 A stunning photographer portfolio
